@@ -1,3 +1,3 @@
-### Conecta y Guanxi (关系)  
+### El Guanxi (关系)  y la Conecta
 
 Las relaciones humanas son el pilar fundamental del desarrollo y la prosperidad compartida. En el espíritu de la *Conecta* y el *Guanxi (关系)*, encontramos un puente entre culturas: una red de confianza mutua que fomenta la cooperación, la estabilidad y el entendimiento. Estas conexiones, construidas con integridad y respeto, no solo fortalecen los vínculos entre personas, sino que también impulsan el progreso colectivo. En este espacio, honramos esta filosofía como la base para construir un futuro común, donde la sencillez de una relación puede generar grandes transformaciones.
