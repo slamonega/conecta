@@ -1,6 +1,6 @@
 Este curso introductorio explora el camino del pueblo chino bajo el liderazgo del Partido Comunista de China, destacando los logros históricos y los retos superados en áreas clave como la economía, la innovación tecnológica y el bienestar social.
 
-Como recurso central, proponemos los 24 capítulos del documental "Creando una Nueva China" realizado por CGTN (Televisión Pública de China).
+Como recurso central proponemos los 24 capítulos del documental "Creando una Nueva China" realizado por la CGTN (Televisión Pública de China).
 
 Proponemos el análisis en cómo China ha integrado sus valores culturales milenarios con los objetivos de modernización, construyendo un modelo de gobernanza caracterizado por el desarrollo inclusivo, la estabilidad y la cooperación internacional.
 
