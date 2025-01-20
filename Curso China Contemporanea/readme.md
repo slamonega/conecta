@@ -9,7 +9,7 @@ Este curso busca fortalecer la comprensión sobre el compromiso del pueblo chino
 ## Capítulos del documental
 
 1. **El nacimiento del Partido**  
-   [Ver en YouTube](https://www.youtube.com/watch?v=l_UHI21b9xA)
+   [**El nacimiento del Partido**](https://www.youtube.com/watch?v=l_UHI21b9xA)
 
 2. **La chispa que enciende la pradera**  
    [Ver en YouTube](https://www.youtube.com/watch?v=7maB6XH_22c)
