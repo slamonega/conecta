@@ -1,3 +1,81 @@
-### Conecta y Guanxi (关系)  
+# Curso sobre la China Contemporánea
 
-Las relaciones humanas son el pilar fundamental del desarrollo y la prosperidad compartida. En el espíritu de la *Conecta* y el *Guanxi (关系)*, encontramos un puente entre culturas: una red de confianza mutua que fomenta la cooperación, la estabilidad y el entendimiento. Estas conexiones, construidas con integridad y respeto, no solo fortalecen los vínculos entre personas, sino que también impulsan el progreso colectivo. En este espacio, honramos esta filosofía como la base para construir un futuro común, donde la sencillez de una relación puede generar grandes transformaciones.
+Proponemos como punto de partida los 24 capítulos del documental *"Creando una Nueva China"* realizado por CGTN (Televisión Pública de China). En este curso exploraremos el camino del pueblo chino bajo el liderazgo del Partido Comunista, destacando los logros históricos y los retos superados en áreas clave como la economía, la innovación tecnológica y el bienestar social.
+
+Profundizaremos en cómo China ha integrado sus valores culturales milenarios con los objetivos de modernización, construyendo un modelo de gobernanza caracterizado por el desarrollo inclusivo, la estabilidad y la cooperación internacional.
+
+Este curso busca fortalecer la comprensión sobre el compromiso del pueblo chino en la construcción de una comunidad de destino compartido para la humanidad.
+
+## Capítulos del documental
+
+1. **El nacimiento del Partido**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=l_UHI21b9xA)
+
+2. **La chispa que enciende la pradera**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=7maB6XH_22c)
+
+3. **El punto de inflexión**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=LIs1N1WMdcs)
+
+4. **El gran pilar**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=zXB-HivJzDw)
+
+5. **El duelo de los destinos**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=6WXXdAJR9mE)
+
+6. **La fundación de la Nueva China**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=MGbc5qZ9q-Y)
+
+7. **Los sólidos cimientos**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=VLup3aXjoBk)
+
+8. **La exploración ardua**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=hUX3YUZYRLg)
+
+9. **El punto de inflexión histórico**  
+   [Ver en YouTube](https://www.youtube.com/watch?v=oSPFM1DjwCM)
+
+10. **El viento de la primavera**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=LmUAyw13fkY)
+
+11. **La determinación del rumbo**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=61WqqcuS4n4)
+
+12. **El retorno del viajero**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=cwQA2yRs2Lk)
+
+13. **El desarrollo científico**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=Wqw-rqdIJis)
+
+14. **La mejora de la vida del pueblo**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=2JYiAqZJQcE)
+
+15. **El sueño de la revitalización**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=XC-ENnfo5bE)
+
+16. **La batalla por la reforma**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=_oyezPduI6U)
+
+17. **El Estado de derecho**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=5EEsQ2_ljUg)
+
+18. **El alivio de la pobreza**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=XxeBt552fhU)
+
+19. **La convicción en la cultura**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=YgIDEnDRrUE)
+
+20. **La China hermosa**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=9lC4VXWB2H0)
+
+21. **La diplomacia de un gran país**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=DmPdAmuXDf8)
+
+22. **El fortalecimiento y la revitalización del ejército**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=tiO26_enqX4)
+
+23. **La autorrevolución**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=wwOoDbe4yYQ)
+
+24. **La gran causa inmortal**  
+    [Ver en YouTube](https://www.youtube.com/watch?v=rUw_i_zJx1o)
