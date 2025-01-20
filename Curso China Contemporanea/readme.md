@@ -4,7 +4,7 @@ Profundizaremos en cómo China ha integrado sus valores culturales milenarios co
 
 Este curso busca fortalecer la comprensión sobre el compromiso del pueblo chino en la construcción de una comunidad de destino compartido para la humanidad.
 
-# Capítulos del documental
+### Capítulos
 
 
 1. [**El nacimiento del Partido**](https://www.youtube.com/watch?v=l_UHI21b9xA)
