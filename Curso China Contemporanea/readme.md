@@ -2,7 +2,7 @@ Este curso introductorio explora el camino del pueblo chino bajo el liderazgo de
 
 Como recurso central proponemos los 24 capítulos del documental "Creando una Nueva China" realizado por la CGTN (Televisión Pública de China).
 
-Valoramos el análisis en cómo China ha integrado sus valores culturales milenarios con los objetivos de modernización, construyendo un modelo de gobernanza caracterizado por el desarrollo inclusivo, la estabilidad y la cooperación internacional.
+Valoramos el análisis de cómo China ha integrado sus valores culturales milenarios con los objetivos de modernización, construyendo un modelo de gobernanza caracterizado por el desarrollo inclusivo, la estabilidad y la cooperación internacional.
 
 En síntesis, invitamos a la comprensión del compromiso del pueblo chino en la construcción de una comunidad de destino compartido para la humanidad.
 
